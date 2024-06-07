@@ -1,16 +1,18 @@
-## Hi there 👋
+## Bem vindo ao meu perfeio 💓
 
-<!--
-**souzaisabelle18/souzaisabelle18** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Eu sou a Isabelle de Souza 
 
-Here are some ideas to get you started:
+- Estudo Administração
+- Estou me desenvolmendo nessa area e aprendendo a cada dia
+- Busco uma oportunidade de trabalho 
+- Utilizo esse aplicativo para me organizar 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Você pode entrar em contato comigo 📪
+
+isabelledesouzabarbosa18@gmail.com 
+
+@_.isabelle_souza 
+
+
+![](![image](https://github.com/souzaisabelle18/souzaisabelle18/assets/171875061/6d2a96c9-37c6-4499-9ba8-f5a828d4f371)
+
