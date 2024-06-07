@@ -2,7 +2,7 @@
 
 Eu sou a Isabelle de Souza 
 
-- Estudo Administração
+- Estudo Jogos eletronicos. 
 - Estou me desenvolmendo nessa area e aprendendo a cada dia
 - Busco uma oportunidade de trabalho 
 - Utilizo esse aplicativo para me organizar 
